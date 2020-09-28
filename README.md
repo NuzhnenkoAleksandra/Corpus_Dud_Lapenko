@@ -1,1 +1,1 @@
-# Corpus_Dud_Lapenko
+# Dud_Lapenko
